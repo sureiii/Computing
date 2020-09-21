@@ -83,8 +83,7 @@ Wow.
 "I..." i looked at his expectant eyes, then looked away quickly. I stood there awkwardly. He slowly began to walk away.
 
 
-"I like you too." I finally manage. He froze in his tracks. 
+"Sorry, even though I like you too, what are we going to do about that? Date each other? Ye- no. I don't have the time and might not even be committed to the relationship. I think you should just go find someone else to like." 
 
-I could not resist it anymore. I ran up behind him and threw my arms aroudn him, resulting in a awkward yet sweet hug. 
+He held his head down and walked off. We never talked much from then on.
 
-He tried to move, but i stopped him, "Let's just stay in this position for a while more, please." I say, before resting my head on his shoulder and closing my eyes.
